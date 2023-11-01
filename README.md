@@ -11,7 +11,4 @@ Tengo 24 años.
 
 Me gusta el diseño Front-end.
 
-##  ❤❤❤ M & L ❤❤❤
-
-Cursando esta tecnicatura con mi amor ❤❤❤
 
